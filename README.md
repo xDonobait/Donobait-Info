@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @xDonobait, My real Name is Donoban.
+- 👀 I’m interested in technology, gaming, and exploring new languages.
+- 🌱 I’m currently learning web development and improving my English skills.
+- 💞️ I’m looking to collaborate on developing websites and mobile applications
+- 📫 How to reach me:  You can reach me via email at [donobanperalta843@gmail.com] My insta[@dono.bait__] or through my GitHub profile [@xDonobait].
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: My favorite color is black and I always wear it.
